@@ -4,4 +4,4 @@ Oscar Guerrero - TheBenchWarmer21
 Noah Garrett - noahggarrett-1
 Patrick Fleming - PFActual
 
-https://planningpokeronline.com/glf0ZgA54iG9hhuIbKED
+
